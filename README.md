@@ -17,6 +17,6 @@
  ### Challenges and Difficulties Encountered 
   There were a disproportionate number of data points at lower dolor goal levels which made the % of success and failure for the highest goal levels unreliable.         
  ## Results
- If Louise does want to go forward with another campaign I would recommend trying to stay under the $15,000 goal limit to give her slightly favorable odds on having a successful campaign.  I would recomend starting the campaign in the 2nd quarter no matter the Goal amount.
+ If someone was considering launching a campaign I would recomend that they keep it under the $15,000 goal level which will give them a favorable chance of success.  I    would also recomend starting the campaign in the 2nd quarter no matter the Goal amount.
 
   
